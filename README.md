@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Philipokok
 - 👀 I’m interested in interior designing
 - 🌱 I’m currently learning interior designing
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on topics concerning interior designing.
 - 📫 How to reach me .. philipokok106@gmail.com
 
 <!---
